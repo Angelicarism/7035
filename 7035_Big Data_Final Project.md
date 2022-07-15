@@ -2,7 +2,7 @@
 
 - ***CHENG Xinyi 3035888449***
 - ***GUO Jing 3035878860***
-- ***YU Ruiqi 303588188***
+- ***YU Ruiqi 3035881881***
 
 ## 1. **Some interesting facts about Chinese innovative activity**
 
